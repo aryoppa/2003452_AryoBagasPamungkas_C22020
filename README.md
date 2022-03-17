@@ -1,1 +1,0 @@
-# 2003452_AryoBagasPamungkas_C22020
